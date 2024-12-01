@@ -1,0 +1,1 @@
+# spolecznosciowa_aplikacja
